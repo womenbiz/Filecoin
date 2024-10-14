@@ -104,6 +104,23 @@ POAP: 29 claimants
 ![image](https://github.com/user-attachments/assets/aece1571-fe3a-4304-86d3-93e5287745d2)
 
 
+**FILELATAM CAPTER: new Filecoin capter in Latam**
+
+
+![image](https://github.com/user-attachments/assets/2dc928ab-781d-4485-aa22-38d0ccdfc584)
+
+https://x.com/FileLatam
+
+![image](https://github.com/user-attachments/assets/b5913b58-bd85-49ab-a81b-f3816e40952d)
+
+![image](https://github.com/user-attachments/assets/a9d6681a-deaf-492d-abae-d089e1815985)
+
+![image](https://github.com/user-attachments/assets/0626ea08-8177-4aed-bfb2-65d6cfaecefd)
+https://x.com/FileLatam/status/1843332899183141032
+
+![image](https://github.com/user-attachments/assets/bba3eeaa-dcf8-457c-a99e-b2c98a9b0b43)
+
+
 **POAPS sent: 
 ** 
 https://docs.google.com/spreadsheets/d/1gljz2e826ICMhkl3pbuiXVO_0EXSHx-PgIghzhmCefA/edit?usp=sharing
