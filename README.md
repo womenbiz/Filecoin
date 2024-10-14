@@ -15,7 +15,7 @@ We started in 2022 and until now we continues doing the job to promove tech in w
 **FILECOIN IMPACT: 
 **
 
-* Eduactional Posts
+* Educational Posts
 * Videos
 * Workshops
 * Tips
