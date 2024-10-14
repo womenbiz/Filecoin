@@ -77,3 +77,17 @@ POAP: 29 claimants
 
 ![image](https://github.com/user-attachments/assets/9f2ec5e4-561c-47a0-bd1b-1cf685360d8b)
 
+**POAPS sent: 
+** 
+https://docs.google.com/spreadsheets/d/1gljz2e826ICMhkl3pbuiXVO_0EXSHx-PgIghzhmCefA/edit?usp=sharing
+
+![image](https://github.com/user-attachments/assets/47a448ab-8ffc-4cf7-b800-d27ff5ae186f)
+![image](https://github.com/user-attachments/assets/184dcd29-a656-49a6-88e0-b4d11357fc71)
+
+
+We will be working to promove Filecoin in Spanish, so let´s do it together!!!
+Thank you! 
+WBiz
+
+
+
